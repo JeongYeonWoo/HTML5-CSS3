@@ -3,5 +3,8 @@
 
 ### coding study start!
 
+<hr />
 
-#### 20180828
+#### 20180828 
+#### I overestimated my ability.
+#### Let's start again with modesty.
